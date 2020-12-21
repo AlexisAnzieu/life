@@ -19,7 +19,7 @@ https://www.youtube.com/watch?v=Unzc731iCUY - Patrick Winston - MIT
 
 ### La parole
 
-- Répéter de manières cyclique chacun des concepts apportés avec de nouvelles formulations
+- Répétez de manières cyclique chacun des concepts apportés avec de nouvelles formulations
 - Utilisez la ponctuation verbale afin d'aider le public à se recentrer. Indiquez ce que vous avez couvert jusqu'à présent et ce qu'il y a à venir. Avoir un plan, un schéma.
 - Engagez le public avec des questions modérément difficiles.
 
