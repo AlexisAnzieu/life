@@ -26,3 +26,6 @@ Avec des populations de plus en plus grandes il devient nécessaire de l'adminis
 
 ## 8. Il n'y a pas de justice dans l'histoire
 Il y avait des hiérarchies sociales dans toutes les civilisations. Elles permettent à des groupes d'individus de se repérer entre eux sans se connaitre intimement. En Inde les castes proviennent des envahisseurs d'Inde peu nombreux qui ont divisé le peuple pour maintenir le pouvoir. En Amérique, la traite d'esclave fit de même. Les hommes et les femmes subissent la même catégorisation sans qu'on ne sache trop pourquoi. Mais toutes ces hiérarchies sont des mythes intersubjectifs. 
+
+## 9. La flèche de l'histoire
+Les mythes communs sont à la base de la culture. Cette dernière est en pertuel mouvement et remplie de paradoxe que l'homme s'essaye de résoudre: les dissonnances cognitives. La culture mondiale tend vers l'unification (même lois, même suivis scientifiques etc) grâce aux marchands (économique), conquérant (politique) et prophète (religieux)
