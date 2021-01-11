@@ -3,7 +3,7 @@
 ## 1. Un animal insignifiant 
 Le cerveau est devenu de plus en plus gros, donc beaucoup de femme mourrait à l'accouchement => les bebes qui ont survecu etaient des prematurés qui n'avaient pas tous leurs organes fonctionneles. Et c'est aujourd'hui encore le cas. La gestation continue à l'exterieur pour optiiser les chances de survie. Attachement tres fort du petit à sa mère et réciproquement tout au long de sa vie. Ce qui permet des relations très nouées et de modeler le cerveau pas encore fini
 
-Nous avons evolue trop vite en haut d ela chaine alimentaire, notre cerveau n'en est pas conscient donc nous ne nous sentons pas coupable des catastrophes ecologique etc. Nous n'avons pas developpé de conscicnence globale et persistons a croire que nous sommes SEUL. 
+Nous avons evolue trop vite en haut d ela chaine alimentaire, notre cerveau n'en est pas conscient donc nous ne nous sentons pas coupable des catastrophes ecologique etc. Nous n'avons pas développé de conscience globale et persistons a croire que nous sommes SEUL. 
 
 ## 2. L'arbre de la connaissance
 
@@ -28,4 +28,7 @@ Avec des populations de plus en plus grandes il devient nécessaire de l'adminis
 Il y avait des hiérarchies sociales dans toutes les civilisations. Elles permettent à des groupes d'individus de se repérer entre eux sans se connaitre intimement. En Inde les castes proviennent des envahisseurs d'Inde peu nombreux qui ont divisé le peuple pour maintenir le pouvoir. En Amérique, la traite d'esclave fit de même. Les hommes et les femmes subissent la même catégorisation sans qu'on ne sache trop pourquoi. Mais toutes ces hiérarchies sont des mythes intersubjectifs. 
 
 ## 9. La flèche de l'histoire
-Les mythes communs sont à la base de la culture. Cette dernière est en pertuel mouvement et remplie de paradoxe que l'homme s'essaye de résoudre: les dissonnances cognitives. La culture mondiale tend vers l'unification (même lois, même suivis scientifiques etc) grâce aux marchands (économique), conquérant (politique) et prophète (religieux)
+Les mythes communs sont à la base de la culture. Cette dernière est en perpetuel mouvement et remplie de paradoxe que l'homme s'essaye de résoudre: les dissonances cognitives. La culture mondiale tend vers l'unification (même lois, même suivis scientifiques etc) grâce aux marchands (économique), conquérant (politique) et prophète (religieux)
+
+## 10. L'odeur de l'argent
+Avec les villes et l'accroissement de la population, les gens pouvaient se spécialiser dans un domaine et recevoir continuellement des demandes. Mais le troc sur de grosses quantités ne suffisait plus car recevoir 100 sacs de pommes dans la même journée par exemple n'était pas vraiment interessant. L'invention de la monnaie, réalité intersubjective, vit alors le jour. La monnaie est le seul système de confiance crée par l'homme qui puisse enjamber n'importe quel fossé culturel
