@@ -32,3 +32,6 @@ Les mythes communs sont à la base de la culture. Cette dernière est en perpetu
 
 ## 10. L'odeur de l'argent
 Avec les villes et l'accroissement de la population, les gens pouvaient se spécialiser dans un domaine et recevoir continuellement des demandes. Mais le troc sur de grosses quantités ne suffisait plus car recevoir 100 sacs de pommes dans la même journée par exemple n'était pas vraiment interessant. L'invention de la monnaie, réalité intersubjective, vit alors le jour. La monnaie est le seul système de confiance crée par l'homme qui puisse enjamber n'importe quel fossé culturel
+
+## 11. Vision impérial
+Les empires firent converger de multiples peuples vers des valeurs communes qui restèrent en place après leur dislocation (romain, arabe, européen, chinois...). La suite logique serait un empire mondial.
