@@ -42,3 +42,6 @@ La religion a donné une autorité surhumaine aux structures fragiles telles les
  Les empires étaient polythéistes et cléments envers les autres croyance, exceptés les religions monothéistes tel le Christ que les romains firent crucifié. Néanmoins le monothéisme persista (explique l'ordre mais mystifié par le mal), suivi du dualisme qui sépara le bien du mal (explique le mal mais reste perplexe devant l'ordre, qui régit les lois de Dieu et du Diable?). Au final, cela nous mène au [syncrétisme](https://fr.wikipedia.org/wiki/Syncr%C3%A9tisme): fusion du monotéisme (Dieu), du dualisme (Dieu et le Diable), du polythéisme (les saints) et de l'animisme (les esprits)
 
  Il existe d'autres religions, qui confirme l'existence des dieux mas que ces derniers sont régits par les lois de la Nature. D'après le bouddhisme, l'homme dépend de sa conscience et `sa souffrance nait du désir`. Il y a aussi le communisme, le capitalisme, l'humanisme... Ce dernier est décliné en libéral (preserver la liberte de chacun), en socialiste (preserver l'egalite de l'espece) et evolutif (encourager l'evolution en sur-homme)
+
+ ## 13. Le secret de la réussite
+ Les cultures se propagent sans se soucier de leur benefice pour l'humanité. 
