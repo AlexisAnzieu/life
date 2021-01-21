@@ -57,3 +57,6 @@ Il existe d'autres religions, qui confirme l'existence des dieux mas que ces der
 ## 13. Le secret de la réussite
 
 Les cultures se propagent sans se soucier de leur benefice pour l'humanité.
+
+## 14. La decouverte de l'ignorance
+L'humanité a fait un bond dans la science lorsqu'elle a avoué son ignorance. Cependant cela detruisit les mythes. La scicne est une sorte de religion à part qui rassemble les gens. Son objectif est de comprendre les regles qui regissent le monde à travers des equations. Elle propspere en compahnie d;une religon ou d;une ideologie qui finace dans le but d'y voir un retour sur investissement.
