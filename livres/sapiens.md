@@ -59,4 +59,9 @@ Il existe d'autres religions, qui confirme l'existence des dieux mas que ces der
 Les cultures se propagent sans se soucier de leur benefice pour l'humanité.
 
 ## 14. La decouverte de l'ignorance
+
 L'humanité a fait un bond dans la science lorsqu'elle a avoué son ignorance. Cependant cela detruisit les mythes. La scicne est une sorte de religion à part qui rassemble les gens. Son objectif est de comprendre les regles qui regissent le monde à travers des equations. Elle propspere en compahnie d;une religon ou d;une ideologie qui finace dans le but d'y voir un retour sur investissement.
+
+## 15. Le mariage de la science et de l'empire
+
+Découvertes des continents et extermination des populations aztheque et incas avec la meme technique "conduisez-mois a votre chef puis meurtrr des gardes du corps et extorsion du pouvoir royal". Christophe Colomb n;a jamais cru avoir decouverrt un n ouveau contient, ancre dans les anciennes traditions. Ce fut Amerigo Vespucci qui valida l'hypothese et son nom fut donné au continent par le cartographe de l'epoque Martin Waldseemüller: l'Amerique.
