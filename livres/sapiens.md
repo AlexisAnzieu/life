@@ -78,3 +78,7 @@ Vers 1820, les anglais n'avait plus de forets autoru d'eux et se mirent a bruler
 ## 18. UNe révolution permanente
 
 Avec l'arrivée des usnes les ouvriers ne devait pas arriver en retard sou spein de bvloquer toute la ligne de production. Les transports devinrent un moyen important et vec l'arrivee des rapides locomatives britnniques l'heure du se synchroniser au niveau national afin de ne pas avoir d'horaires differentes entre deux villes. Plus l'etat et le marche sont forts -> plus l'inidividuys est fort -> plus les familles et communautes sont faibles. Les guerres sont en déclins, nous vivons un etat de vraie paix plutot qu'un etat d'attente de guerre. Notmannet du au cout de la guerre qui augmente ainsi qu'a l'absence de veritabe profits. La paix est hautement plus lucrative.
+
+## 19. Et ils vécurent heureux
+
+Toutes ces recherches n'ont jamais repondus a la question: sommes-nous plus heureux qu'avant? Du point de vue de la faune et la flore la reponse est non. Le bonheur semble present lorsque sa vie fait du sens. Mais l'existence meme de l'humain n'a pas de sens. Dès lors, le bonheur consisterait à synchroniser ses illusions personnelles avec les illusions collectives dominantes. On va 
