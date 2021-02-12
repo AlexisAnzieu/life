@@ -1,5 +1,7 @@
 # SAPIENS
 
+https://www.ynharari.com/book/sapiens-2/
+
 ## 1. Un animal insignifiant
 
 Le cerveau est devenu de plus en plus gros, donc beaucoup de femme mourrait à l'accouchement => les bebes qui ont survecu etaient des prematurés qui n'avaient pas tous leurs organes fonctionneles. Et c'est aujourd'hui encore le cas. La gestation continue à l'exterieur pour optiiser les chances de survie. Attachement tres fort du petit à sa mère et réciproquement tout au long de sa vie. Ce qui permet des relations très nouées et de modeler le cerveau pas encore fini
@@ -81,4 +83,4 @@ Avec l'arrivée des usnes les ouvriers ne devait pas arriver en retard sou spein
 
 ## 19. Et ils vécurent heureux
 
-Toutes ces recherches n'ont jamais repondus a la question: sommes-nous plus heureux qu'avant? Du point de vue de la faune et la flore la reponse est non. Le bonheur semble present lorsque sa vie fait du sens. Mais l'existence meme de l'humain n'a pas de sens. Dès lors, le bonheur consisterait à synchroniser ses illusions personnelles avec les illusions collectives dominantes. On va 
+Toutes ces recherches n'ont jamais repondus a la question: sommes-nous plus heureux qu'avant? Du point de vue de la faune et la flore la reponse est non. Le bonheur semble present lorsque sa vie fait du sens. Mais l'existence meme de l'humain n'a pas de sens. Dès lors, le bonheur consisterait à synchroniser ses illusions personnelles avec les illusions collectives dominantes. On va
