@@ -22,3 +22,7 @@ Lors des reunions, donner 5 cartes de chaque couleur aux participants:
 
 Apres un temps de debat, une proposition ecrite est soumise et tourne autour de la table afin d'etre lue par chacun.
 Un deuxieme tour de table pour ajouter des details à la proposition qui est ensuite validée
+
+### Jeter des ponts
+
+Se rapprocher des collèges nationaux existant pour établir des partenariats et interrompre les rumeurs.
