@@ -26,3 +26,10 @@ Un deuxieme tour de table pour ajouter des details à la proposition qui est ens
 ### Jeter des ponts
 
 Se rapprocher des collèges nationaux existant pour établir des partenariats et interrompre les rumeurs.
+
+### Ateliers
+
+-   Corps humain: apprendre à se connaitre, litteralement
+-   Littérature #TODO reproduire des scènes de livres dans la vie réelle
+-   Langue #TODO caligraphie
+-   Ici et d'ailleurs #TODO interviewer des inconnus
