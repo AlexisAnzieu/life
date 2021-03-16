@@ -33,3 +33,13 @@ Se rapprocher des collèges nationaux existant pour établir des partenariats et
 -   Littérature #TODO reproduire des scènes de livres dans la vie réelle
 -   Langue #TODO caligraphie
 -   Ici et d'ailleurs #TODO interviewer des inconnus
+-   Ecriture, ecrire le pire scenario de ... (vacances?)
+
+### Les adultes
+
+## petite histoire-grande histoire
+Faire un tableau de 3 colonnes:
+- 1ere colonne correspond à son année de naissance
+- 2nd colonne pour la petite histoire personnelle correspondante à l'annee
+- 3eme colonne pour la grande histoire commune
+- ... ainsi de suite jusqu'à l'année actuelle
