@@ -16,3 +16,8 @@ Il faut désirer le désir lui-même plutot que l'objet de ce désir. C'est une 
 
 ### La colère
 Elle m'invite à agir pour préserver quelque chose qui est important pour moi. C'est un indicateur qui permet de pponiter un besoin qui n'est pas satisfait.
+
+### La tristesse
+Une invitation à tourner la page, à faire le deuil, pour commencer quelque chose de nouveau
+
+Ce n'est pas l'emotion qui fait souffrir c'est la résistance a l'émtion. Je suis contre au lieu d'être avec. Les émotions sont des énergies vibrantes qui définissent notre humanité.
