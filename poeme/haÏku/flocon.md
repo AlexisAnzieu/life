@@ -1,5 +1,5 @@
-Dehors les flocons
+Monceau de cristaux
 
-Les bûches dans la cheminée
+Tissé au gré du vent en
 
-crépitent sous mon nez
+un flocon de neige
